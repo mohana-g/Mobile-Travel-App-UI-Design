@@ -73,4 +73,4 @@ Your feedback and suggestions are welcome to improve this experience for travel 
 
 ---
 
-> Designed with ❤️ by [Your Name]
+> Designed with ❤️ by Mohana G
